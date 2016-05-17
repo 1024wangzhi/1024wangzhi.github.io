@@ -2,17 +2,10 @@
 	<br />
 </p>
 <h3>
-	<strong><strong><strong> <strong>草榴社区，草榴,caoliu,草榴社区邀请码,草榴社区最新网址,caoliushequ,艹榴，cao6，艹6，草柳，CL，草6，caoliu</strong>&nbsp;</strong></strong></strong>
+	<strong><strong><strong> <strong>草榴社区，草榴,caoliu,草榴社区邀请码,草榴社区最新网址,caoliushequ,艹榴，cao6，艹6，草柳，CL，草6，caoliu</strong>&nbsp;</strong></strong></strong> 
 </h3>
 <h3>
-	<strong><strong><strong><img src="http://ww4.sinaimg.cn/large/75e7430dgw1e8byz4whicj20aj0310sw.jpg" alt="image" /></strong></strong></strong> 
-</h3>
-<p>
-	<strong><strong><strong><br />
-</strong></strong></strong>
-</p>
-<h3>
-	<strong><strong><strong><strong>警告 / WARNING</strong> <strong>强烈建议您将本站加入收藏夹! <span style="color:#E53333;">Ctrl+D</span>一鍵收藏</strong> </strong></strong></strong> 
+	<strong><strong><strong><strong>警告 / WARNING</strong> <strong>强烈建议您将本站加入收藏夹! <span style="color:#E53333;">Ctrl+D</span>一鍵收藏</strong></strong></strong></strong>
 </h3>
 <h3>
 	<strong><strong><strong>-------------------------------------------------------------------------------</strong></strong></strong> 
@@ -24,7 +17,7 @@
 	<strong><strong><strong> <strong>------------------------------------------------------------------------------</strong> </strong></strong></strong> 
 </p>
 <p>
-	<strong><span style="font-size:14px;">其他防屏蔽论坛发布页地址: </span><a href="http://caoliushequ1.tumblr.com/" target="_blank"><span style="font-size:14px;">发布页1</span></a> <a href="http://cl1024.hatenablog.com/" target="_blank"><span style="font-size:14px;">发布页2</span></a><span style="font-size:14px;"> </span><a href="http://caoliu521.livejournal.com/" target="_blank"><span style="font-size:14px;">发布页3</span></a><span style="font-size:14px;"> </span><a href="http://1024dizhi.blog.com/" target="_blank"><span style="font-size:14px;">发布页4</span></a><span style="font-size:14px;"> </span><a href="http://1024dizhi1.pen.io/" target="_blank"><span style="font-size:14px;">发布页5</span></a><span style="font-size:14px;"> </span><span style="font-size:14px;"> <a href="http://1024dizhi.github.io/" target="_blank">发布页6</a></span></strong><a href="http://1024dizhi.github.io/" target="_blank"></a> 
+	<strong><span style="font-size:14px;">其他防屏蔽论坛发布页地址: </span><a href="http://caoliushequ1.tumblr.com/" target="_blank"><span style="font-size:14px;">发布页1</span></a> <a href="http://cl1024.hatenablog.com/" target="_blank"><span style="font-size:14px;">发布页2</span></a><span style="font-size:14px;"> </span><a href="http://caoliu521.livejournal.com/" target="_blank"><span style="font-size:14px;">发布页3</span></a><span style="font-size:14px;"> </span><a href="http://1024dizhi.blog.com/" target="_blank"><span style="font-size:14px;">发布页4</span></a><span style="font-size:14px;"> </span><a href="http://1024dizhi1.pen.io/" target="_blank"><span style="font-size:14px;">发布页5</span></a><span style="font-size:14px;"> </span><span style="font-size:14px;"> <a href="http://1024wangzhi.github.io/" target="_blank">发布页6</a></span></strong><a href="http://1024dizhi.github.io/" target="_blank"></a> 
 </p>
 <p>
 	<strong>------------------------------------------------------------------------------</strong> 
@@ -273,8 +266,5 @@
 </h4>
 <p>
 	--------------------------------------
-</p>
-<a href="http://www.51.la/?15129004" target="_blank"><img alt="我要啦免费统计" src="http://img.users.51.la/15129004.asp" style="border:none;" /></a> 
-<p>
-	<br />
-</p>
+<script language="javascript" type="text/javascript" src="http://js.users.51.la/15128895.js"></script>
+<noscript><a href="http://www.51.la/?15128895" target="_blank"><img alt="&#x6211;&#x8981;&#x5566;&#x514D;&#x8D39;&#x7EDF;&#x8BA1;" src="http://img.users.51.la/15128895.asp" style="border:none" /></a></noscript>
